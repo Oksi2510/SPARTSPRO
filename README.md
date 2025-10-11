@@ -1,1 +1,1 @@
-https://Oksi2510.github.io/testJob/
+https://Oksi2510.github.io/SPARTSPRO/
